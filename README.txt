@@ -1,0 +1,1 @@
+This trading robot was created by professionals with ten years of experience in trading and programming. With it, you can easily add up to 100% per month to your trading portfolio. To start the installation, click Setup
